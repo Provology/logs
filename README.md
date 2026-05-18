@@ -1,0 +1,1 @@
+discussing videogames and books with ai assistant
